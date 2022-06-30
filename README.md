@@ -7,7 +7,7 @@
 
 - 🦈 I am developing a new discord grabber, the new [Crew Stealer](Coming Soon...)
 
-- 🥳 If you have any questions about me or my profile call me on Discord [Sutton#8760](https://discord.gg/DmSnbNk8vr)
+- 🥳 If you have any questions about me or my profile call me on Discord [Sutton#2019](https://discord.gg/jSz5FvH8je)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
